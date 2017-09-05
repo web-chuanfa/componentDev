@@ -30,11 +30,11 @@
 
 		*****************************
 		
-			    QQ : 1549782452
+			    QQ : 18701007095
 
-			weixin : henyulee
+			weixin : chuanfa
 
-			E-mail : henyulee@163.com
+			E-mail : chuanfa_li@163.com
 
 		*****************************
 
